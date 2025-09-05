@@ -1,1 +1,1 @@
-# ProyIntComDat25BEquipo-DICA-
+# ProyIntComDat25B equipo-DICA-
